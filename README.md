@@ -1,0 +1,1 @@
+This is my proposal about community drive, l've always wanted to have my own website for community drive since l hate when l have to see people begging on the streets for food, clothes and money so that breaks my heart every time l see them.
